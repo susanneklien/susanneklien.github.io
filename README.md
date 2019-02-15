@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to the homepage of Susanne Klien
 
 You can use the [editor on GitHub](https://github.com/susanneklien/susanneklien.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
@@ -11,7 +11,8 @@ Markdown is a lightweight and easy-to-use syntax for styling your writing. It in
 ```markdown
 Syntax highlighted code block
 
-# Header 1
+# About myself
+I am currently working for the Modern Japanese Studies Program at Hokkaido University where I am in charge of teaching Japanese culture and society to mostly international students from across the globe. Originally from Vienna, Austria, I have been an associate professor at Hokkaido University since September 2013.
 ## Header 2
 ### Header 3
 
