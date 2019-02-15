@@ -1,6 +1,6 @@
 ## Welcome to the homepage of Susanne Klien
 
-# About myself
+## About myself
 I am currently working for the Modern Japanese Studies Program at Hokkaido University where I am in charge of teaching Japanese culture and society to mostly international students from across the globe. Originally from Vienna, Austria, I have been an associate professor at Hokkaido University since September 2013.
 
 ## Research
@@ -11,6 +11,6 @@ I have a broad range of research interests in the modern culture and society of 
 
 ### My CV
 
-### Publications
+## Publications
 
 
