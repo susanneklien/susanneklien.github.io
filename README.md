@@ -11,7 +11,6 @@ I have a broad range of research interests in the modern culture and society of 
 4) Regional revitalization, rurality and placemaking
 5) Youth subcultures (ethnography of hip hop in Hokkaido)
 
-### My CV
 ## EDUCATION
 
 Free University Berlin (Japanese Studies)
@@ -59,6 +58,9 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 	Hokkaido University, Modern Japanese Studies Programme (MJSP)
 
 ## Publications
+
+
+MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 2019	Urban migrants in rural Japan: Post-growth ontologies between agency and anomie, Albany, NY: State University of New York Press (2019), monograph (forthcoming).
 
 2013 	Paragrana: Zeitschrift für Historische Anthropologie, „Ritual and Well-Being“, Vol. 22 (1)/2013, Interdisziplinäres Zentrum fuer Historische Anthropologie der Freien Universität Berlin, Akademie Verlag (with Professor Christoph Wulf)
@@ -123,6 +125,8 @@ CHAPTERS IN BOOKS
 2006 "Die Erfindung von Tradition in Fujiwara Masahikos Kokka no hinkaku (Die Dignity of the State): Relevanz und Grenzen eines Konzepts" in Günther Distelrath (Ed.), Referate des 13. Deutschsprachigen Japanologentags, Vol. 8/2. Berlin: ebv.
 
 OTHER PUBLICATIONS
+
+
 2017 “Recovering from Disaster, Reinventing Japan?”, Current History: A Journal of Contemporary World Affairs, September (invited essay).
 
 2017 「ローカル食を通じたグローバルなまちづくり」に関する研究」レポート、「開発こうほう」８月号、北海道開発協会 [Hokkaido Development Association]、No.649, p. 16-19 (invited).
@@ -134,7 +138,8 @@ Feldforschung und kulinarische Begegnung in Hokkaido”, Co-author with Stephani
 
 2016 “Vom dritten Geschlecht, zirkulierender Macht und “Zivilisation”, Beitrag zum Katalog der Ausstellung “Shunga: Erotische Kunst aus Japan”, Oesterreichiches Museum fuer Angewandte Kunst/Gegenwartskunst Wien (MAK), Oktober 2016, S. 16-7.
 
-Reviews: 
+
+REVIEWS
 
 2016	Book review of Tom Gill, Brigitte Steger and David H. Slater (eds.), Japan Copes with Calamity”, Japanese Studies Vol. 36.
 
@@ -147,6 +152,7 @@ Reviews:
 2002	"Book Review: Burton Watson (transl.), Po Chü-I: Selected Poems, (Columbia University Press, 2002) Education About Asia, Vol. 11, No.1 Spring Issue.
    
 ## OTHER ACTIVITIES
+
 Conception and organization of contemporary art project SUMAZO with Markus Strobl to promote exchange and understanding of emerging contemporary artists between Europe and Japan, 2006, 2007 (http://www.sumazo.org/de_past.html)
 Exhibition in Vienna “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber” in cooperation with Murata & Friends, Berlin, and Galerie Jocelyn Wolff, Paris
 Exhibition in Vienna “SUMAZO 2007 Noriko Ambe – Gregor Hildebrandt” 
@@ -171,6 +177,7 @@ Okinoshima Islands, Shimane Prefecture (2010, follow-up 2016)
 Ishinomaki, Oshika Peninsula and Kesennuma, Miyagi Prefecture (2012, follow-up in 2017) 
 Rikuzen Takata, Iwate Prefecture (2012, follow-up in 2017)
 Shintotsukawa (since 2014) and Sapporo (since 2013), Ashibetsu (2017), Hokkaido.
+
 Berlin, Vienna, Lisbon (2017).
   
 Languages: English (speaking, reading, writing) excellent; Japanese (speaking) excellent, (reading, writing) good; French (speaking, reading) good; German (native language); Chinese (reading, writing) basic.
