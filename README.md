@@ -12,6 +12,51 @@ I have a broad range of research interests in the modern culture and society of 
 5) Youth subcultures (ethnography of hip hop in Hokkaido)
 
 ### My CV
+## EDUCATION
+
+Free University Berlin (Japanese Studies)
+	Habilitation June 2013
+Thesis: “The Practice and Transmission of Traditions in Contemporary Rural Japan: Beyond Locality, Identity and Preservation” (Supervisor: Professor Irmela Hijiya-Kirschnereit)
+
+Vienna University (International Relations, Japanese Studies, Philosophy)	
+(1998-2001)
+Ph.D. June 2001
+Dissertation: "Rethinking Japan’s Identity and International Role: Tradition and Change in Japan’s Foreign Policy" (Supervisors: Professor Helmut Kramer, Professor Franz Martin Wimmer) 
+
+Vienna University (Translation and Interpretation Studies, Japanese Studies)	
+	M.A. June 1997	 
+Thesis: "Basic Human Rights in the Austrian and Japanese Constitutions" (Supervisor: Professor Manfred Nowak)
+                           
+FURTHER STUDIES
+Tokyo University of Foreign Studies, Japan, 1995-6        
+Kyoto University, Graduate School of Human and Environmental Studies 
+(Supervisor: Professor Terumasa Nakanishi), 1998-2003                                                    		
+
+ACADEMIC AND PROFESSIONAL EXPERIENCE 
+Doctoral Research Fellow, 1999-2003
+Graduate School of Human and Environmental Studies, 
+Kyoto University, Japan
+
+Assistant Professor (C1), 2003-5
+	Humboldt University Berlin, Japanzentrum
+
+Post-Doctoral Research Fellow, 2006-7 
+Martin-Luther-University Halle-Wittenberg, Graduate School of Asia and Africa in World Reference Systems (GSAA) 
+
+Japan Society for the Promotion of Science (JSPS) Research Fellow, 2007-9
+Waseda University, Tokyo, Institute for Politics and Economics (Professor Agata Kōichirō)
+
+Lecturer, 2008, 2010, 2012, 2013
+Freie Universität Berlin, East Asia Centre, Department of Japanese Studies 
+
+Senior Research Fellow, December 2009-August 2013
+German Institute for Japanese Studies (DIJ) Tokyo 
+
+Visiting researcher, June-August 2011
+Interdisziplinäres Zentrum für Historische Anthropologie der Freien Universität Berlin (Prof. Christoph Wulf)
+
+Associate Professor for Modern Japanese Culture (tenure), since September 2013
+	Hokkaido University, Modern Japanese Studies Programme (MJSP)
 
 ## Publications
 2019	Urban migrants in rural Japan: Post-growth ontologies between agency and anomie, Albany, NY: State University of New York Press (2019), monograph (forthcoming).
@@ -22,14 +67,12 @@ I have a broad range of research interests in the modern culture and society of 
 
 2012	International Journal of Well-Being, Special Issue „Happiness and Culture“  (co-edit with Carola Hommerich), Special Issue on “Happiness: Does Culture Matter?”, Vol. 2(4) 2012, http://www.internationaljournalofwellbeing.org/index.php/ijow/issue/view/9
 
-2010 	TRADITION WITHIN AND BEYOND THE FRAMEWORK OF INVENTION: CASE STUDIES FROM THE MASCARENES AND JAPAN, Center for Interdisciplinary Area Studies, Middle East, Africa and Asia (ZIRS), Martin-Luther-University Halle-Wittenberg, Vol. 28 (with Patrick Neveling), 204 pages.
+2010 	Tradition Within And Beyond The Framework Of Invention: Case Studies From The Mascarenes And Japan, Center for Interdisciplinary Area Studies, Middle East, Africa and Asia (ZIRS), Martin-Luther-University Halle-Wittenberg, Vol. 28 (with Patrick Neveling), 204 pages.
 
-2002	RETHINKING JAPAN’S IDENTITY AND INTERNATIONAL ROLE – AN INTERCULTURAL PERSPECTIVE, Edward Beauchamp (ed.), London/New York: Routledge (History, Politics, Sociology, Culture Series), 202 pages.
+2002	Rethinking Japan’s Identity And International Role – An Intercultural Perspective, Edward Beauchamp (ed.), London/New York: Routledge (History, Politics, Sociology, Culture Series), 202 pages.
 
 
 PEER-REVIEWED JOURNAL ARTICLES
-2019	“Demographic decline and ritual practices”, in Elisabetta Porcu and Michael Dylan Foster (eds.), Journal of Religion in Japan, Brill, Special Issue on Festivals and Religion in Japan (forthcoming).
-
 2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology, Vol. 17/4 (forthcoming).
 
 2018	“Accommodation and resistance in Hokkaido hip hop practitioners”, Ethnography, under review.
@@ -56,18 +99,14 @@ PEER-REVIEWED JOURNAL ARTICLES
 2007 	“Reconstructing Japan’s International Contribution in the post-September 11th world: Evaluating Implications for Japan’s National Security Debate“, Asian Cultural Studies, Institute of Asian Cultural Studies, International Christian University Tokyo, Vol. 33. 
 
 
-BOOK MANUSCRIPTS IN PROGRESS
-The Practice and Transmission of Traditions in Contemporary Rural Japan: Beyond locality, identity and preservation 
-
 CHAPTERS IN BOOKS 
 2019 “How to observe people and their environment: (Participant) Observation” in Cornelia Reiher and Nora Kottmann (eds.), Handbook Studying Japan: Research Designs, Fieldwork and Methods, Nomos (forthcoming).
 
-2019 “Young urban migrants in the Japanese countryside between self-realization and slow life? The quest for ‘small-scale happiness’ and alternative lifestyles in post-growth Japan”, chapter in Hiroko Takeda and Mark Williams (eds.), The Routledge Handbook of Contemporary Japan, (in print).
+2019 “Young urban migrants in the Japanese countryside between self-realization and slow life? The quest for ‘small-scale happiness’ and alternative lifestyles in post-growth Japan”, chapter in Hiroko Takeda and Mark Williams (eds.), The Routledge Handbook of Contemporary Japan, (forthcoming).
 
 2018 “Escaping shigarami and seeking ibasho: Beyond normative notions of Japan”, co-author with Lara, Chen Tien-Shi (Waseda University), Final comments, in Blai Guarne and Paul Hansen (eds.), Escaping Japan: Reflections on Estrangement and Exile in the Twenty-First Century, Japan Anthropological Workshop Series, London: Routledge.
 
 2017 “Living and Working for the Moment: Motivations, aspirations and experiences of disaster volunteers in Tohoku” in Wolfram Manzenreiter and Barbara Holthus (eds.), Happiness and the Good Life in Japan. Japan Anthropological Workshop Series, London: Routledge, pp. 164-182.
-
 
 2016「人口減少社会における「創造的過疎」、砂防および地すべり防止講義集（第５６回）平成28.2.18, p. 61-66
 
@@ -103,11 +142,19 @@ Reviews:
 
 2002	"Book Review: Burton Watson (transl.), Po Chü-I: Selected Poems, (Columbia University Press, 2002) Education About Asia, Vol. 11, No.1 Spring Issue.
    
-OTHER ACTIVITIES
+## OTHER ACTIVITIES
 Conception and organization of contemporary art project SUMAZO with Markus Strobl to promote exchange and understanding of emerging contemporary artists between Europe and Japan, 2006, 2007 (http://www.sumazo.org/de_past.html)
 Exhibition in Vienna “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber” in cooperation with Murata & Friends, Berlin, and Galerie Jocelyn Wolff, Paris
 Exhibition in Vienna “SUMAZO 2007 Noriko Ambe – Gregor Hildebrandt” 
 Publication of catalogue “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber”, ISBN 3-9501168-1-8, Funds obtained from the Japan Foundation.
+
+## PROFESSIONAL SERVICES
+Reviewer for: Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis.
+Organizer of: VSJF (German Association for Social Science Research on Japan) Sociology and Anthropology Group (with Carola Hommerich and Celia Spoden)
+External project application reviews and doctoral thesis evaluations for: 
+Curtin University, Australia; German-Israeli Foundation for Scientific Research and Development (GIF), Social Sciences and Humanities Research Council of Canada (SSHRC).
+Research Associate: Nanzan University, Anthropological Institute (April 2019-21)
+
 
 
 
