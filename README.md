@@ -73,6 +73,8 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 
 
 PEER-REVIEWED JOURNAL ARTICLES
+
+
 2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology, Vol. 17/4 (forthcoming).
 
 2018	“Accommodation and resistance in Hokkaido hip hop practitioners”, Ethnography, under review.
