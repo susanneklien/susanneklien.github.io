@@ -102,6 +102,8 @@ PEER-REVIEWED JOURNAL ARTICLES
 
 
 CHAPTERS IN BOOKS 
+
+
 2019 “How to observe people and their environment: (Participant) Observation” in Cornelia Reiher and Nora Kottmann (eds.), Handbook Studying Japan: Research Designs, Fieldwork and Methods, Nomos (forthcoming).
 
 2019 “Young urban migrants in the Japanese countryside between self-realization and slow life? The quest for ‘small-scale happiness’ and alternative lifestyles in post-growth Japan”, chapter in Hiroko Takeda and Mark Williams (eds.), The Routledge Handbook of Contemporary Japan, (forthcoming).
@@ -151,12 +153,49 @@ Exhibition in Vienna “SUMAZO 2007 Noriko Ambe – Gregor Hildebrandt”
 Publication of catalogue “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber”, ISBN 3-9501168-1-8, Funds obtained from the Japan Foundation.
 
 ## PROFESSIONAL SERVICES
+
 Reviewer for: Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis.
 Organizer of: VSJF (German Association for Social Science Research on Japan) Sociology and Anthropology Group (with Carola Hommerich and Celia Spoden)
 External project application reviews and doctoral thesis evaluations for: 
 Curtin University, Australia; German-Israeli Foundation for Scientific Research and Development (GIF), Social Sciences and Humanities Research Council of Canada (SSHRC).
 Research Associate: Nanzan University, Anthropological Institute (April 2019-21)
 
+## Research sites: Japan, Europe
+
+I have lived in Japan for more than twelve years. 
+Fieldwork experience in Japan: 
+Tōkamachi, Niigata Prefecture (2007-9, follow-up 2016)
+Naoshima, Kagawa Prefecture (2009)
+Kamiyama, Tokushima Prefecture (2017)
+Okinoshima Islands, Shimane Prefecture (2010, follow-up 2016)
+Ishinomaki, Oshika Peninsula and Kesennuma, Miyagi Prefecture (2012, follow-up in 2017) 
+Rikuzen Takata, Iwate Prefecture (2012, follow-up in 2017)
+Shintotsukawa (since 2014) and Sapporo (since 2013), Ashibetsu (2017), Hokkaido.
+Berlin, Vienna, Lisbon (2017).
+  
+Languages: English (speaking, reading, writing) excellent; Japanese (speaking) excellent, (reading, writing) good; French (speaking, reading) good; German (native language); Chinese (reading, writing) basic.
+
+## FELLOWSHIPS, GRANTS AND AWARDS
+
+Book Purchase Grant, Austrian Industrial Chamber, 1995-6
+
+Cultural Exchange Grant, Japanese Education Ministry (Tokyo University of Foreign Studies)
+
+Research Grant, Japanese Education Ministry (Kyoto University), 1998-2002
+
+Award of the HPAIR (Harvard Project for Asian and International Relations) Essay Prize “Asia and the Knowledge Economy”, Singapore, 2001
+
+Post-Doctoral Grant, Graduate School of Asia and Africa in Global Reference Systems (Martin-Luther-University Halle-Wittenberg), 2005-7 [43,200 Euro] 
+
+Research Grant, Japan Society for the Promotion of Science (JSPS) (Waseda University, Tokyo), 2007-9 [9,485,000 JPY]
+
+Interdisciplinary workshop support grant (Friedrich-Ebert-Stiftung Award), 2011	[4000 Euro]
+
+Sponsorship by Nikon Corporation for Shintotsukawa Regional Revitalization workshop 2015 (digital cameras for student participants in workshop)
+
+Research Grant (Kakenhi, kiban C), Japan Society for the Promotion of Science (JSPS) (Hokkaido University), 2016-2018 [3,250,000 JPY].
+
+Research Grant, Hokkaido Development Association (Hokkaido Kaihatsu Kyokai) for Shintotsukawa Regional Revitalization Project (workshop and research), 2016-7 [700,000 JPY].
 
 
 
