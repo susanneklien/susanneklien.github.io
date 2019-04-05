@@ -8,7 +8,7 @@ I have a broad range of research interests in the modern culture and society of 
 1) Immaterial culture, i.e. the practice and transmission of tradition(s) such as festivals, dances and various rituals,
 2) Subjective well-being and alternative modes of working and living in post-growth rural Japan (including new forms of entrepreneurship)
 3) Mobility of Japanese individuals abroad for lifestyle reasons
-4) Regional revitalization, rurality and placemaking
+4) Regional revitalization, rurality, locality and placemaking
 5) Youth subcultures (ethnography of hip hop in Hokkaido)
 
 ## EDUCATION
@@ -61,6 +61,7 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 
 
 MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
+
 2019	Urban migrants in rural Japan: Post-growth ontologies between agency and anomie, Albany, NY: State University of New York Press (2019), monograph (forthcoming).
 
 2013 	Paragrana: Zeitschrift für Historische Anthropologie, „Ritual and Well-Being“, Vol. 22 (1)/2013, Interdisziplinäres Zentrum fuer Historische Anthropologie der Freien Universität Berlin, Akademie Verlag (with Professor Christoph Wulf)
