@@ -62,7 +62,7 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 
 MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 
-2019	Urban migrants in rural Japan: Post-growth ontologies between agency and anomie, Albany, NY: State University of New York Press (2019), monograph (forthcoming).
+2019	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press (2019), monograph (forthcoming).
 
 2013 	Paragrana: Zeitschrift für Historische Anthropologie, „Ritual and Well-Being“, Vol. 22 (1)/2013, Interdisziplinäres Zentrum fuer Historische Anthropologie der Freien Universität Berlin, Akademie Verlag (with Professor Christoph Wulf)
 
@@ -78,7 +78,7 @@ MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 PEER-REVIEWED JOURNAL ARTICLES
 
 
-2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology, Vol. 17/4 (forthcoming).
+2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology, Vol. 17/4.
 
 2018	“Accommodation and resistance in Hokkaido hip hop practitioners”, Ethnography, under review.
 
