@@ -1,3 +1,5 @@
+![onsen_sapporo](/IMG_4971.jpg)
+
 ## Welcome to the homepage of Susanne Klien
 
 ## About myself
