@@ -1,4 +1,4 @@
-![onsen_sapporo](/IMG_4971.jpg)
+![Hokudai sustainability talk](/10_027-199x300.jpg)
 
 ## Welcome to the homepage of Susanne Klien
 
