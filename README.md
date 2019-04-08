@@ -207,6 +207,6 @@ Research Grant (Kakenhi, kiban C), Japan Society for the Promotion of Science (J
 
 Research Grant, Hokkaido Development Association (Hokkaido Kaihatsu Kyokai) for Shintotsukawa Regional Revitalization Project (workshop and research), 2016-7 [700,000 JPY].
 
-
+![soto or uchi](/KSH Genkan.jpg)
 
 
