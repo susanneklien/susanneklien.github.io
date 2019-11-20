@@ -64,7 +64,9 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 
 MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 
-2019	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press (2019), monograph (forthcoming).
+2020	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press, monograph (forthcoming, paperback 2021).
+
+2018  Rethinking Japan's Identity and International Role, Edward Beauchamp (Ed.), London/New York: Routledge (e-book), 144 pages.
 
 2013 	Paragrana: Zeitschrift für Historische Anthropologie, „Ritual and Well-Being“, Vol. 22 (1)/2013, Interdisziplinäres Zentrum fuer Historische Anthropologie der Freien Universität Berlin, Akademie Verlag (with Professor Christoph Wulf)
 
