@@ -84,7 +84,7 @@ PEER-REVIEWED JOURNAL ARTICLES
 
 2019	“Accommodation and resistance in Hokkaido hip hop practitioners: An ethnography of Generation Resignation in post-growth Japan”, Ethnography (Sage), accepted.
 
-2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology (Chinese University of Hong Kong), Vol. 17/4.
+2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology (Chinese University of Hong Kong), Vol. 18/2.
 
 2017    “Ritual, resistance, rebellion? Disaster volunteer experiences in northeastern Japan”, Journal of Ritual Studies 31(1), University of Pittsburgh, pp. 1-10.
 
