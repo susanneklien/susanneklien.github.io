@@ -13,6 +13,8 @@ I have a broad range of research interests in the modern culture and society of 
 4) Regional revitalization, rurality, locality and placemaking
 5) Youth subcultures (ethnography of hip hop in Hokkaido)
 
+My new research project "Anxious but productive lifestyle mobilities? Divided selves in post-growth Japan" ethnographically explores the experiences and emotions of individuals on the move, specifically Japanese individuals who have relocated within Japan or abroad and returnees. I aim to examine the tension between self-empowerment, subjugation and self-imposed pressures in lifestyle migrants, drawing on research that has approached mobility and immobility as intricately interlinked rather than dichotomic opposites.
+
 ## EDUCATION
 
 Vienna University (International Relations, Japanese Studies, Philosophy)	
