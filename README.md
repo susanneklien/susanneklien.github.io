@@ -156,7 +156,7 @@ REVIEWS
 
 2002	"Book Review: Burton Watson (transl.), Po Chü-I: Selected Poems, (Columbia University Press, 2002) Education About Asia, Vol. 11, No.1 Spring Issue.
    
-## OTHER ACTIVITIES
+## CURATORIAL ACTIVITIES
 
 Conception and organization of contemporary art project SUMAZO with Markus Strobl to promote exchange and understanding of emerging contemporary artists between Europe and Japan, 2006, 2007 (http://www.sumazo.org/de_past.html)
 Exhibition in Vienna “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber” in cooperation with Murata & Friends, Berlin, and Galerie Jocelyn Wolff, Paris
@@ -166,9 +166,12 @@ Publication of catalogue “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber”, 
 ## PROFESSIONAL SERVICES
 
 Reviewer for: Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis; Journal for Sustainable Tourism (Taylor & Francis); Annals of Tourism Research (Elsevier).
+
 Organizer of: VSJF (German Association for Social Science Research on Japan) Sociology and Anthropology Group (with Carola Hommerich and Celia Spoden, 2013-2019); Anthropology Section, Deutschsprachiger Japanologentag 2021 (with Johannes Wilhelm); Urban and Environmental Studies Section, European Association of Japanese Studies Meeting 2021 (with Adrian Favell).
+
 External project application reviews and doctoral thesis evaluations for: 
 Curtin University, Australia; German-Israeli Foundation for Scientific Research and Development (GIF), Social Sciences and Humanities Research Council of Canada (SSHRC).
+
 Research Associate: Nanzan University, Anthropological Institute (April 2019-21)
 
 ## Research sites: Japan, Europe
