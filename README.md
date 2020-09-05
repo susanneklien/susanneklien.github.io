@@ -9,15 +9,11 @@ I am currently working for the Modern Japanese Studies Program at Hokkaido Unive
 I have a broad range of research interests in the modern culture and society of Japan, but I categorise them into the following main themes (although there is some overlap between them).
 1) Immaterial culture, i.e. the practice and transmission of tradition(s) such as festivals, dances and various rituals,
 2) Subjective well-being and alternative modes of working and living in post-growth rural Japan (including new forms of entrepreneurship)
-3) Mobility of Japanese individuals abroad for lifestyle reasons
+3) Transnational mobility of Japanese individuals for lifestyle reasons
 4) Regional revitalization, rurality, locality and placemaking
 5) Youth subcultures (ethnography of hip hop in Hokkaido)
 
 ## EDUCATION
-
-Free University Berlin (Japanese Studies)
-	Habilitation June 2013
-Thesis: “The Practice and Transmission of Traditions in Contemporary Rural Japan: Beyond Locality, Identity and Preservation” (Supervisor: Professor Irmela Hijiya-Kirschnereit)
 
 Vienna University (International Relations, Japanese Studies, Philosophy)	
 (1998-2001)
@@ -64,7 +60,7 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 
 MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 
-2020	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press, monograph (forthcoming, paperback 2021).
+2020	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press, monograph (paperback 2021).
 
 2018  Rethinking Japan's Identity and International Role, Edward Beauchamp (Ed.), London/New York: Routledge (e-book), 144 pages.
 
@@ -81,10 +77,11 @@ MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 
 PEER-REVIEWED JOURNAL ARTICLES
 
+2020	“Accommodation and resistance in Hokkaido hip hop practitioners: An ethnography of Generation Resignation in post-growth Japan”, Ethnography (Sage), online first.
 
-2019	“Accommodation and resistance in Hokkaido hip hop practitioners: An ethnography of Generation Resignation in post-growth Japan”, Ethnography (Sage), accepted.
+2020   "Demographic Change in Contemporary Rural Japan and Its Impact on Ritual Practices", Journal of Religion in Japan 9, Special Issue edited by Elisabetta Porcu and Michael Dylan Foster, (forthcoming).
 
-2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology (Chinese University of Hong Kong), Vol. 18/2.
+2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology (Chinese University of Hong Kong), Vol. 18/2, online first.
 
 2017    “Ritual, resistance, rebellion? Disaster volunteer experiences in northeastern Japan”, Journal of Ritual Studies 31(1), University of Pittsburgh, pp. 1-10.
 
@@ -110,10 +107,11 @@ PEER-REVIEWED JOURNAL ARTICLES
 
 CHAPTERS IN BOOKS 
 
+2020 "Localized, yet deterritorialized lives in rural Japan: Fragmented localities, mobility and neoliberalism" in Hanno Jentzsch and Sonja Ganseforth (eds.), What is the Local: Rethinking the Politics of Subnational Spaces, Routledge (forthcoming).
 
-2019 “How to observe people and their environment: (Participant) Observation” in Cornelia Reiher and Nora Kottmann (eds.), Handbook Studying Japan: Research Designs, Fieldwork and Methods, Nomos (forthcoming).
+2020 “How to observe people and their environment: (Participant) Observation” in Cornelia Reiher and Nora Kottmann (eds.), Handbook Studying Japan: Research Designs, Fieldwork and Methods, Nomos (forthcoming).
 
-2019 “Young urban migrants in the Japanese countryside between self-realization and slow life? The quest for ‘small-scale happiness’ and alternative lifestyles in post-growth Japan”, chapter in Hiroko Takeda and Mark Williams (eds.), The Routledge Handbook of Contemporary Japan, (forthcoming).
+2020 “Young urban migrants in the Japanese countryside between self-realization and slow life? The quest for ‘small-scale happiness’ and alternative lifestyles in post-growth Japan”, chapter in Hiroko Takeda and Mark Williams (eds.), The Routledge Handbook of Contemporary Japan, (forthcoming).
 
 2018 “Escaping shigarami and seeking ibasho: Beyond normative notions of Japan”, co-author with Lara, Chen Tien-Shi (Waseda University), Final comments, in Blai Guarne and Paul Hansen (eds.), Escaping Japan: Reflections on Estrangement and Exile in the Twenty-First Century, Japan Anthropological Workshop Series, London: Routledge.
 
@@ -146,6 +144,8 @@ Feldforschung und kulinarische Begegnung in Hokkaido”, Co-author with Stephani
 
 REVIEWS
 
+2020   Book review of Nicolas Sternsdorff-Cisterna, Food Safety After Fukushima: Scientific Citizenship and the Politics of Risk, Asian Ethnology 79(1).
+
 2016	Book review of Tom Gill, Brigitte Steger and David H. Slater (eds.), Japan Copes with Calamity”, Japanese Studies Vol. 36.
 
 2016	Book review of Ofra Goldstein-Gidoni’s Housewives of Japan: An Ethnography of Real Lives and Consumerized Domesticity, Asian Ethnology, Vol. 75-2, 2016.
@@ -165,15 +165,15 @@ Publication of catalogue “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber”, 
 
 ## PROFESSIONAL SERVICES
 
-Reviewer for: Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis.
-Organizer of: VSJF (German Association for Social Science Research on Japan) Sociology and Anthropology Group (with Carola Hommerich and Celia Spoden)
+Reviewer for: Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis; Journal for Sustainable Tourism (Taylor & Francis); Annals of Tourism Research (Elsevier).
+Organizer of: VSJF (German Association for Social Science Research on Japan) Sociology and Anthropology Group (with Carola Hommerich and Celia Spoden, 2013-2019); Anthropology Section, Deutschsprachiger Japanologentag 2021 (with Johannes Wilhelm); Urban and Environmental Studies Section, European Association of Japanese Studies Meeting 2021 (with Adrian Favell).
 External project application reviews and doctoral thesis evaluations for: 
 Curtin University, Australia; German-Israeli Foundation for Scientific Research and Development (GIF), Social Sciences and Humanities Research Council of Canada (SSHRC).
 Research Associate: Nanzan University, Anthropological Institute (April 2019-21)
 
 ## Research sites: Japan, Europe
 
-I have lived in Japan for more than twelve years. 
+I have lived in Japan for more than fifteen years. 
 Fieldwork experience in Japan: 
 Tōkamachi, Niigata Prefecture (2007-9, follow-up 2016)
 Naoshima, Kagawa Prefecture (2009)
@@ -201,13 +201,15 @@ Post-Doctoral Grant, Graduate School of Asia and Africa in Global Reference Syst
 
 Research Grant, Japan Society for the Promotion of Science (JSPS) (Waseda University, Tokyo), 2007-9 [9,485,000 JPY]
 
-Interdisciplinary workshop support grant (Friedrich-Ebert-Stiftung Award), 2011	[4000 Euro]
+Interdisciplinary workshop support grant (Friedrich-Ebert-Stiftung Award), 2011	[4,000 Euro]
 
 Sponsorship by Nikon Corporation for Shintotsukawa Regional Revitalization workshop 2015 (digital cameras for student participants in workshop)
 
-Research Grant (Kakenhi, kiban C), Japan Society for the Promotion of Science (JSPS) (Hokkaido University), 2016-2018 [3,250,000 JPY].
+Research Grant (Grant-in-Aid, Kiban C), Japan Society for the Promotion of Science (JSPS) (Hokkaido University), 2016-2018 [3,250,000 JPY].
 
 Research Grant, Hokkaido Development Association (Hokkaido Kaihatsu Kyokai) for Shintotsukawa Regional Revitalization Project (workshop and research), 2016-7 [700,000 JPY].
+
+Research Grant (Grant-in-Aid, Kiban C), Japan Society for the Promotion of Science (JSPS)(Hokkaido University), 2020-23 [2,900,000 JPY].
 
 
 
