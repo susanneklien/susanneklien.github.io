@@ -62,7 +62,8 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 
 MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 
-2020	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press, monograph (paperback 2021).
+
+2020	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press, monograph (hardcover, 2021 paperback).
 
 2018  Rethinking Japan's Identity and International Role, Edward Beauchamp (Ed.), London/New York: Routledge (e-book), 144 pages.
 
@@ -81,7 +82,7 @@ PEER-REVIEWED JOURNAL ARTICLES
 
 2020	“Accommodation and resistance in Hokkaido hip hop practitioners: An ethnography of Generation Resignation in post-growth Japan”, Ethnography (Sage), online first.
 
-2020   "Demographic Change in Contemporary Rural Japan and Its Impact on Ritual Practices", Journal of Religion in Japan 9, Special Issue edited by Elisabetta Porcu and Michael Dylan Foster, (forthcoming).
+2020   "Demographic Change in Contemporary Rural Japan and Its Impact on Ritual Practices", Journal of Religion in Japan 9, Special Issue edited by Elisabetta Porcu and Michael Dylan Foster.
 
 2019	“Entrepreneurial selves, governmentality and lifestyle migrants in rural Japan”, Asian Anthropology (Chinese University of Hong Kong), Vol. 18/2, online first.
 
@@ -109,11 +110,11 @@ PEER-REVIEWED JOURNAL ARTICLES
 
 CHAPTERS IN BOOKS 
 
-2020 "Localized, yet deterritorialized lives in rural Japan: Fragmented localities, mobility and neoliberalism" in Hanno Jentzsch and Sonja Ganseforth (eds.), What is the Local: Rethinking the Politics of Subnational Spaces, Routledge (forthcoming).
+2021 "Localized, yet deterritorialized lives in rural Japan: Fragmented localities, mobility and neoliberalism" in Hanno Jentzsch and Sonja Ganseforth (eds.), What is the Local: Rethinking the Politics of Subnational Spaces, Routledge (forthcoming).
 
-2020 “How to observe people and their environment: (Participant) Observation” in Cornelia Reiher and Nora Kottmann (eds.), Handbook Studying Japan: Research Designs, Fieldwork and Methods, Nomos (forthcoming).
+2021 “How to observe people and their environment: (Participant) Observation” in Cornelia Reiher and Nora Kottmann (eds.), Handbook Studying Japan: Research Designs, Fieldwork and Methods, Nomos (forthcoming).
 
-2020 “Young urban migrants in the Japanese countryside between self-realization and slow life? The quest for ‘small-scale happiness’ and alternative lifestyles in post-growth Japan”, chapter in Hiroko Takeda and Mark Williams (eds.), The Routledge Handbook of Contemporary Japan, (forthcoming).
+2020 “Young urban migrants in the Japanese countryside between self-realization and slow life? The quest for ‘small-scale happiness’ and alternative lifestyles in post-growth Japan”, chapter in Hiroko Takeda and Mark Williams (eds.), The Routledge Handbook of Contemporary Japan.
 
 2018 “Escaping shigarami and seeking ibasho: Beyond normative notions of Japan”, co-author with Lara, Chen Tien-Shi (Waseda University), Final comments, in Blai Guarne and Paul Hansen (eds.), Escaping Japan: Reflections on Estrangement and Exile in the Twenty-First Century, Japan Anthropological Workshop Series, London: Routledge.
 
@@ -167,7 +168,7 @@ Publication of catalogue “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber”, 
 
 ## PROFESSIONAL SERVICES
 
-Reviewer for: Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis; Journal for Sustainable Tourism (Taylor & Francis); Annals of Tourism Research (Elsevier).
+Reviewer for: Open Cultural Studies (De Gruyter), Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis; Journal for Sustainable Tourism (Taylor & Francis); Annals of Tourism Research (Elsevier).
 
 Organizer of: VSJF (German Association for Social Science Research on Japan) Sociology and Anthropology Group (with Carola Hommerich and Celia Spoden, 2013-2019); Anthropology Section, Deutschsprachiger Japanologentag 2021 (with Johannes Wilhelm); Urban and Environmental Studies Section, European Association of Japanese Studies Meeting 2021 (with Adrian Favell).
 
