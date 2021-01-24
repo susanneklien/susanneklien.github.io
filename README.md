@@ -150,6 +150,8 @@ Feldforschung und kulinarische Begegnung in Hokkaido”, Co-author with Stephani
 
 
 REVIEWS
+
+
 2020	Book review of John W. Traphagan, Cosmopolitan Rurality, Depopulation and Entrepreneurial Ecosystems in 21st-Century Japan, American Anthropologist (online first).
 
 2020   Book review of Nicolas Sternsdorff-Cisterna, Food Safety After Fukushima: Scientific Citizenship and the Politics of Risk, Asian Ethnology 79(1).
@@ -173,7 +175,7 @@ Publication of catalogue “SUMAZO 2006 Katsuhiro Saiki – Christoph Weber”, 
 
 ## PROFESSIONAL SERVICES
 
-Reviewer for: Open Cultural Studies (De Gruyter), Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis; Journal for Sustainable Tourism (Taylor & Francis); Annals of Tourism Research (Elsevier).
+Reviewer for: American Anthropologist (Wiley), Open Cultural Studies (De Gruyter), Asian Anthropology (Hong Kong, Taylor & Francis), Asian Ethnology (Nanzan University); Millennium (LSE); Japan Forum (Taylor & Francis); Sociologus (Duncker & Humblot); City, Culture and Society (Elsevier); Voluntas (Springer); Contemporary Japan (DIJ/Taylor & Francis); Japan Jahrbuch (Annual Yearbook of the German Association for Social Science Research on Japan), Taylor & Francis; Journal for Sustainable Tourism (Taylor & Francis); Annals of Tourism Research (Elsevier).
 
 Organizer of: VSJF (German Association for Social Science Research on Japan) Sociology and Anthropology Group (with Carola Hommerich and Celia Spoden, 2013-2019); Anthropology Section, Deutschsprachiger Japanologentag 2021 (with Johannes Wilhelm); Urban and Environmental Studies Section, European Association of Japanese Studies Meeting 2021 (with Adrian Favell).
 
