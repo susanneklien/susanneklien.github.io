@@ -63,7 +63,7 @@ Associate Professor for Modern Japanese Culture (tenure), since September 2013
 MONOGRAPHS, EDITED VOLUMES AND SPECIAL ISSUES
 
 
-2020	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press, monograph (hardcover, 2021 paperback).
+2020	Urban migrants in rural Japan: Between agency and anomie in a post-growth world, Albany, NY: State University of New York Press, monograph (hardcover, 2021 paperback)(2020 CHOICE Outstanding Academic Title).
 
 2018  Rethinking Japan's Identity and International Role, Edward Beauchamp (Ed.), London/New York: Routledge (e-book), 144 pages.
 
@@ -110,6 +110,10 @@ PEER-REVIEWED JOURNAL ARTICLES
 
 CHAPTERS IN BOOKS 
 
+2021 "Demographic Change in Contemporary Rural Japan and Its Impact on Ritual Practices" in Elisabetta Porcu and Michael Dylan Foster (eds.), Matsuri and Religion in Japan, Leiden: Brill (forthcoming).
+
+2021 "Tradition und Traditionalismus - Themen, Topoi und theoretische Perspektiven" in Martin Sabrow and Achim Saupe (eds.), Historische Authentizitaet: Ein Interdisziplinaeres Handbuch, Goettingen: Wallstein (forthcoming). 
+
 2021 "Localized, yet deterritorialized lives in rural Japan: Fragmented localities, mobility and neoliberalism" in Hanno Jentzsch and Sonja Ganseforth (eds.), What is the Local: Rethinking the Politics of Subnational Spaces, Routledge (forthcoming).
 
 2021 “How to observe people and their environment: (Participant) Observation” in Cornelia Reiher and Nora Kottmann (eds.), Handbook Studying Japan: Research Designs, Fieldwork and Methods, Nomos (forthcoming).
@@ -146,6 +150,7 @@ Feldforschung und kulinarische Begegnung in Hokkaido”, Co-author with Stephani
 
 
 REVIEWS
+2020	Book review of John W. Traphagan, Cosmopolitan Rurality, Depopulation and Entrepreneurial Ecosystems in 21st-Century Japan, American Anthropologist (online first).
 
 2020   Book review of Nicolas Sternsdorff-Cisterna, Food Safety After Fukushima: Scientific Citizenship and the Politics of Risk, Asian Ethnology 79(1).
 
@@ -216,6 +221,8 @@ Research Grant (Grant-in-Aid, Kiban C), Japan Society for the Promotion of Scien
 Research Grant, Hokkaido Development Association (Hokkaido Kaihatsu Kyokai) for Shintotsukawa Regional Revitalization Project (workshop and research), 2016-7 [700,000 JPY].
 
 Research Grant (Grant-in-Aid, Kiban C), Japan Society for the Promotion of Science (JSPS)(Hokkaido University), 2020-23 [2,900,000 JPY].
+
+2020 Choice Outstanding Academic Title (awarded for monograph Urban Migrants in Rural Japan: Between Agency and Anomie in a Post-growth Society, Albany, N.Y.: SUNY Press 2020).
 
 
 
